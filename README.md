@@ -1,4 +1,4 @@
-# Hi, I'm Joan Rodrigues! 💻 ❤️
+# Hi, I'm Joan Rodrigues! 💻 💜
 
 ### Social 💬
 
